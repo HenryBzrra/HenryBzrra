@@ -2,7 +2,7 @@
 
 **`Desenvolvedor FullStack`**
 
-Me chamo Henry Bezerra Bomfim, tenho 22 anos e sou natural de São Paulo. Cursei Tecnologia da Informação no Senac Rio Grande do Sul. Atualmente, estou cursando Bacharelado em Ciências e Tecnologias com ênfase em Engenharia de Materiais pela UFABC (Universidade Federal do ABC). Sou apaixonado por tecnologia e uso ela de forma casual e por entretenimento, para colocar meus conhecimentos em prática e me testar "[Henry Bezerra](https://www.linkedin.com/in/henrybomfim/)", esta é meu perfil do LinkedIn com mais detalhes sobre meus conhecimentos e experiências.
+Me chamo Henry Bezerra Bomfim, tenho 22 anos e sou natural de São Paulo. Cursei Tecnologia da Informação no Senac Rio Grande do Sul. Atualmente, estou cursando Bacharelado em Ciências e Tecnologias com ênfase em Engenharia de Materiais pela UFABC (Universidade Federal do ABC). Sou apaixonado por tecnologia e uso ela de forma casual e por entretenimento, para colocar meus conhecimentos em prática e me testar "[Henry Bezerra](https://www.linkedin.com/in/henrybomfim/)", este é meu perfil do LinkedIn com mais detalhes sobre meus conhecimentos e experiências.
 
 ---
 
